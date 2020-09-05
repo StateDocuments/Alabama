@@ -6,4 +6,3 @@
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Alabama/blob/master/3685.jpg)
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Alabama/blob/master/3738.jpg)
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Alabama/blob/master/3755.jpg)
-![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Alabama/blob/master/coming-soon.png)
